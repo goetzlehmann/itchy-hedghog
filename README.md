@@ -8,6 +8,8 @@ First the ingredients:
 -> Redbull
 -> Coffee
 
+# NEVER FORGET TO BUY COCAINE BEFOREHAND!!!
+
 # Receipe
 Brew coffee as regular, but replace water by Redbull. Add Cocain to measure. Stir. Insert into hedghog. Done.
 
