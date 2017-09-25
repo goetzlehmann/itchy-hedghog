@@ -5,12 +5,12 @@ Supersonic hedghog
 First the ingredients:
 -> Hedghog
 -> Cocain
--> Redbull
+-> ~~Redbull~~Mate
 -> Coffee
 
 # NEVER FORGET TO BUY COCAINE BEFOREHAND!!!
 
 # Receipe
-Brew coffee as regular, but replace water by Redbull. Add Cocain to measure. Stir. Insert into hedghog. Done.
+Brew coffee as regular, but replace water by ~~Redbull~~Mate. Add Cocain to measure. Stir. Insert into hedghog. Done.
 
 # Rocket Science here!
