@@ -14,3 +14,4 @@ First the ingredients:
 Brew coffee as regular, but replace water by Redbull. Add Cocain to measure. Stir. Insert into hedghog. Done.
 
 # Rocket Science here!
+# Always wear safety-googles when handling supersonic hegdhogs
